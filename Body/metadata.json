@@ -1,0 +1,5 @@
+{
+  "name": "NovelSync Crawler",
+  "description": "A Gemini-powered web crawler that discovers novel chapters and archives them directly to your GitHub repository.",
+  "requestFramePermissions": []
+}
