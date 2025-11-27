@@ -18,13 +18,6 @@
 
 ---
 
-### Douluo Dalu 2:You are an Evil Soul Master,but also a good ...
-Read 'Douluo Dalu 2:You are an Evil Soul Master,but also a good person(Comp)' Online for Free, written by the author Godlancelot, This book is a Anime ...
-
-[Read more](https://m.webnovel.com/book/31785144808506805)
-
----
-
 ### Soul Land : Douluo Dalu ,Chapter 2
 Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
@@ -36,6 +29,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 霍雨浩和王冬的武魂融合成功了，两人尝试着施展武魂融合技，居然用出了一种极其强大的技能。这个技能被他们命名为璀璨中的凋零、黄金之路。新生考核淘汰赛开始。
 
 [Read more](https://weread.qq.com/web/reader/58732990811e3ce80g016c73)
+
+---
+
+### Douluo Dalu 2:You are an Evil Soul Master,but also a good ...
+Read 'Douluo Dalu 2:You are an Evil Soul Master,but also a good person(Comp)' Online for Free, written by the author Godlancelot, This book is a Anime ...
+
+[Read more](https://m.webnovel.com/book/31785144808506805)
 
 ---
 
