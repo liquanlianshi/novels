@@ -18,13 +18,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 13 – Is the Heart of Aikidō the Sword? Chapter 14 – Aikidō ...
-
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
-
----
-
 ### Soul Land - Read Free Manga Online
 Soul Land, 斗罗大陆, Combat Continent, Soul Land, Dou Luo Da Lu ... Chapter 13. 1 | 0. reply subscribe.. permalinkreport.
 
@@ -32,10 +25,17 @@ Soul Land, 斗罗大陆, Combat Continent, Soul Land, Dou Luo Da Lu ... Chapter 
 
 ---
 
-### 第十三章武魂殿的布局，风云序幕
-Read Chapter 13 of 从斗罗开始万界抽奖Novel by 二次元的风. Episode 13 '第十三章武魂殿的布局，风云序幕' story update online for free. 行走在星斗大森林的灌木林 ...
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
-[Read more](https://m.webnovel.com/book/%E4%BB%8E%E6%96%97%E7%BD%97%E5%BC%80%E5%A7%8B%E4%B8%87%E7%95%8C%E6%8A%BD%E5%A5%96_15892903504309804/%E7%AC%AC%E5%8D%81%E4%B8%89%E7%AB%A0-%E6%AD%A6%E9%AD%82%E6%AE%BF%E7%9A%84%E5%B8%83%E5%B1%80%EF%BC%8C%E9%A3%8E%E4%BA%91%E5%BA%8F%E5%B9%95_42829629513771100)
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+
+---
+
+### Douluo Continent Novel Read Online
+斗罗大陆之焱雷天凤. Author: 遮迦越罗. Read Chapter 1 Add to Library. 111 ... 13 Chapter 13 A Great Victory 673 days ago · 14 Chapter 14 673 days ago · 15 ...
+
+[Read more](https://www.fanmtl.com/novel/ke287148.html)
 
 ---
 
