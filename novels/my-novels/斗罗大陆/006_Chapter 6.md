@@ -11,31 +11,31 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### To Live Chapter 6, a Bleach + ManHua/Chinese Comics ...
-Ichi Guo stood in the center of a small clearing surrounded by flowers that tended to ward away monsters who disliked their unstable aura.
-
-[Read more](https://www.fanfiction.net/s/12064043/6/To-Live)
-
----
-
-### Silence and Storm - Chapter 21 - sirjahzz27 - 斗罗大陆
-Chapter Text. The harbor city did not greet them so much as endure them. They had already passed beneath the broken lion-arches and walked ...
-
-[Read more](https://archiveofourown.org/works/71208706/chapters/188364156)
-
----
-
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
+
+---
+
+### 斗罗大陆（六） -- 唐家三少-京东阅读
+封面. 版权信息. 第345章史莱克学院VS炽火学院（上）. 第346章史莱克学院VS炽火学院（中）. 第347章史莱克学院VS炽火学院（下）. 第348章火免，蓝银草（上）.
+
+[Read more](https://cread.jd.com/read/startRead.action?bookId=30546665&readType=1)
+
+---
+
+### [AMA] 我通过读网文过了HSK 6 : r/ChineseLanguage
+我找到了一个网站，上面有斗罗大陆5的网络小说中文版。我一边听有声书，一边阅读章节。然后我再不听音频的情况下再读一遍。起初我非常慢。读一章 ...
+
+[Read more](https://www.reddit.com/r/ChineseLanguage/comments/wcqk1m/ama_i_passed_the_hsk_6_by_reading_web_novels/?tl=zh-hans)
+
+---
+
+### 第6章邀请加入武魂殿- 斗罗
+Read Chapter 6 of 斗罗：饕餮神牛Novel by 减肥的贪吃熊. Episode 6 '第6章邀请加入武魂殿' story update online for free. 就在玄墨有些忘乎所以的时候，接下来素云涛 ...
+
+[Read more](https://m.webnovel.com/book/19154895908576504/51418684224669092)
 
 ---
 
