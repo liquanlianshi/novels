@@ -18,6 +18,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Chapter 14 - Soul Land - Legend of The Gods' Realm
+Read Soul Land - Legend of The Gods' Realm Ch. 14 on MangaDex!
+
+[Read more](https://mangadex.org/chapter/c9dc0ec6-1ef9-4508-8f1a-c638c66d6247)
+
+---
+
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -25,17 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
+### Chapter 14 - soul land: douluo dalu the game
+Read Chapter 14 of SOUL LAND: DOULUO DALU THE GAME Novel by SHADOW_YAGAMI. Episode 14 'Chapter 14' story update online for free.
 
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
-
----
-
-### JamaPunji: Home
-Investment Basics · Mutual Funds · Pension Funds · Real Estate Investment Trust · Leasing Companies · Investment Banks · Capital Market · Bonds.
-
-[Read more](https://jamapunji.pk/)
+[Read more](https://m.webnovel.com/book/soul-land-douluo-dalu-the-game_21126292406516605/chapter-14_56916327692034355)
 
 ---
 
