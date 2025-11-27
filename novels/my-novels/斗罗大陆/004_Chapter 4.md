@@ -11,6 +11,20 @@
 
 ---
 
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Read the latest chapter and full stories of “Soul Land IV (Douluo Dalu) : Ultimate Fighting” by Tang Jia San Shao online, covering Fantasy.
+
+[Read more](https://en.webnovel.com/book/14107168305361805)
+
+---
+
+### Soul Land IV - The Ultimate Combat
+A kind man, Lan Xiao who lead the expedition hatched that egg and a cute baby boy came out. He decided to adopt the child and named him Lan Xuanyu.
+
+[Read more](https://mangadex.org/title/f2560480-8b67-457b-8895-9de643f681e9/soul-land-iv-the-ultimate-combat)
+
+---
+
 ### Soul Land IV: Ultimate Fighting • The Latest Official Manga ...
 Six years ago, Duo Luo researcher Lan Xiao discovered a mysterious egg that hatched a human boy; The child is now named Xuanyu; a talented student in Tian ...
 
@@ -22,20 +36,6 @@ Six years ago, Duo Luo researcher Lan Xiao discovered a mysterious egg that hatc
 Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
 [Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
-
----
-
-### 《斗罗大陆IV终极斗罗》小说在线阅读
-唐家三少创作的玄幻小说《斗罗大陆IV终极斗罗》，已更新1794章，最新章节：后记。一万年后，冰化了。斗罗联邦科考队在极北之地科考时发现了一个有着金银 ...
-
-[Read more](https://www.qidian.com/book/1013406185/)
-
----
-
-### Chapter List - Blue Silver Translations - WordPress.com
-Chapter List: Volume 1 – Douluo Continent, Volume 2 – The First Spirit Ring, Volume 3 – Monster Academy, Volume 4 – Shrek Seven Devils, Volume 5 – Star Dou ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
 ---
 
