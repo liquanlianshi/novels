@@ -11,6 +11,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Chapter 14 - Soul Land - Legend of The Gods' Realm
+Read Soul Land - Legend of The Gods' Realm Ch. 14 on MangaDex!
+
+[Read more](https://mangadex.org/chapter/c9dc0ec6-1ef9-4508-8f1a-c638c66d6247)
+
+---
+
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 14 1 years Ago · Chapter 13 1 years Ago · Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago ...
 
@@ -18,10 +25,10 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+### Chapter 14 - soul land: douluo dalu the game
+Read Chapter 14 of SOUL LAND: DOULUO DALU THE GAME Novel by SHADOW_YAGAMI. Episode 14 'Chapter 14' story update online for free.
 
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+[Read more](https://m.webnovel.com/book/soul-land-douluo-dalu-the-game_21126292406516605/chapter-14_56916327692034355)
 
 ---
 
@@ -29,13 +36,6 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
 
 [Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
-
----
-
-### JamaPunji: Home
-DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
-
-[Read more](https://jamapunji.pk/)
 
 ---
 
