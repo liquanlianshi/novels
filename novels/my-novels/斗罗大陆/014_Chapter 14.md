@@ -32,10 +32,10 @@ Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapt
 
 ---
 
-### JamaPunji: Home
-DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
-[Read more](https://jamapunji.pk/)
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
