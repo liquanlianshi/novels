@@ -12,21 +12,21 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 ---
 
 ### Douluo Dalu 3: Legend of the White Fox (Completed)
-Chapter 11: Na'er. Bam! Wu Zhagkong slammed the communicator down, his eyes flashing with killing intent. He had never felt such a strong urge to ...
+Chapter 11: Na'er Bam! Wu Zhagkong slammed the communicator down, his eyes flashing with killing intent. He had never felt such a strong urge to harm someone ...
 
 [Read more](https://m.webnovel.com/book/douluo-dalu-3-legend-of-the-white-fox-(completed)_31699447700884805/chapter-11-na'er_85117090775754639)
 
 ---
 
 ### Chapter List - Blue Silver Translations - WordPress.com
-i just read up to manga chapter 11 where they are entering the academy. Can any one tell me which chapter is that in the novel? LikeLike. Reply. Adam's avatar ...
+There are a total of 950ish chapters and as of 11/28/16 442 have been released. I absolutely love the characters. I'm going to have to try out these others you' ...
 
 [Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
 ---
 
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago · Chapter 7 1 years Ago ...
+Read Novel and Comic Online All Chapters. The God Kings who were bored in the God Realm took turns going to Shrek Academy in the Douluo ...
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
