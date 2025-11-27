@@ -18,13 +18,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 13 – Is the Heart of Aikidō the Sword? Chapter 14 – Aikidō ...
-
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
-
----
-
 ### 第十三章武魂殿的布局，风云序幕
 Read Chapter 13 of 从斗罗开始万界抽奖Novel by 二次元的风. Episode 13 '第十三章武魂殿的布局，风云序幕' story update online for free. 行走在星斗大森林的灌木林 ...
 
@@ -36,6 +29,13 @@ Read Chapter 13 of 从斗罗开始万界抽奖Novel by 二次元的风. Episode 
 Soul Land, 斗罗大陆, Combat Continent, Soul Land, Dou Luo Da Lu ... Chapter 13. 1 | 0. reply subscribe.. permalinkreport.
 
 [Read more](https://bato.si/title/72446-soul-land)
+
+---
+
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
