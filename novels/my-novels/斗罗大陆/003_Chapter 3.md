@@ -25,17 +25,17 @@
 
 ---
 
-### Soul Land : Douluo Dalu ,Chapter 3
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
-
-[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-3/)
-
----
-
 ### Manga Soul Land III - The Legend of the Dragon King Read
 Soul Land III - The Legend of the Dragon King is a manga/manhwa/manhua written by Tang Jia San Shao, and is updated fast and free on www.mgeko.cc.
 
 [Read more](https://www.mgeko.cc/manga/soul-land-iii-the-legend-of-the-dragon-kings/)
+
+---
+
+### Soul Land : Douluo Dalu ,Chapter 3
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+
+[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-3/)
 
 ---
 
