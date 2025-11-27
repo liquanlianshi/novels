@@ -25,17 +25,17 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 8 1 years Ago · Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago ...
-
-[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
-
----
-
 ### Douluo Dalu - Soul Land | Novels Xianxia&Xuanhuan Wiki
 A land where only the mystical souls of battle lay. The continent of Douluo. How will Tang San survive in this unknown environment?
 
 [Read more](https://novels-xianxiaxuanhuan.fandom.com/wiki/Douluo_Dalu_-_Soul_Land)
+
+---
+
+### Douluo Dalu Gaiden Douluo World - Novel Comic
+... 斗罗大陆外传斗罗 ... Chapter 8 1 years Ago · Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago ...
+
+[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
