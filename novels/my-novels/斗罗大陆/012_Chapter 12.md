@@ -12,7 +12,7 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 ---
 
 ### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+Chapter List: Volume 1 – Douluo Continent, Volume 2 – The First Spirit Ring, Volume 3 – Monster Academy, Volume 4 – Shrek Seven Devils, Volume 5 – Star Dou ...
 
 [Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
@@ -32,10 +32,10 @@ Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english
 
 ---
 
-### Chapter 12 Bad News
-Read Chapter 12 of Douluo: Returning to Douluo, I Create the Kingdom of Angels Fanfic by Aryan_Kumar_7647. Episode 12 'Chapter 12 Bad News' fanfiction ...
+### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
+നമ്മുക്ക് pപലർക്കും അധികം aഅറിയാത്ത 2 സീരീസ് പരിചയപെടുത്താമെന്നു വിചാരിക്കുന്നു . 1) Soul land 2) Battle through the heaven വളരെ addictive ആയേക്കാവുന്ന cultivation, martial arts, ...
 
-[Read more](https://m.webnovel.com/book/douluo-returning-to-douluo-i-create-the-kingdom-of-angels_33292057700966005/chapter-12-bad-news_89652063260176756)
+[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
