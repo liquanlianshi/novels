@@ -5,37 +5,37 @@
 > **Note:** This content is retrieved via Serper Search Snippets as the LLM generation was disabled. Full content extraction requires visiting the source link.
 
 ### Soul Land : Douluo Dalu ,Chapter 6
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.See more
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
 [Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-6/)
 
 ---
 
-### To Live Chapter 6, a Bleach + ManHua/Chinese Comics ...
-Ichi Guo stood in the center of a small clearing surrounded by flowers that tended to ward away monsters who disliked their unstable aura.See more
+### 斗罗大陆（六） -- 唐家三少-京东阅读
+封面. 版权信息. 第345章史莱克学院VS炽火学院（上）. 第346章史莱克学院VS炽火学院（中）. 第347章史莱克学院VS炽火学院（下）. 第348章火免，蓝银草（上）.
 
-[Read more](https://www.fanfiction.net/s/12064043/6/To-Live)
-
----
-
-### Silence and Storm - Chapter 21 - sirjahzz27 - 斗罗大陆
-Chapter Text. The harbor city did not greet them so much as endure them. They had already passed beneath the broken lion-arches and walked ...
-
-[Read more](https://archiveofourown.org/works/71208706/chapters/188364156)
-
----
-
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...See more
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+[Read more](https://cread.jd.com/read/startRead.action?bookId=30546665&readType=1)
 
 ---
 
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...See more
+... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
+
+---
+
+### Combat Continent Manga Season 1 - Chapter 6-10
+A land where only the mystical souls of battle lay. The continent of Douro. How will Tang San survive in this unknown environment? With a new ...
+
+[Read more](https://www.goodreads.com/book/show/45551363-combat-continent-manga-season-1---chapter-6-10)
+
+---
+
+### Dou Luo Da Lu
+When Tang San turns six, a huge surprise awaits him. His peaceful life in this new world will change completely.
+
+[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
