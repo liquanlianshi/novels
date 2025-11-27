@@ -25,17 +25,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Douluo Dalu 2:You are an Evil Soul Master,but also a good ...
-Read 'Douluo Dalu 2:You are an Evil Soul Master,but also a good person(Comp)' Online for Free, written by the author Godlancelot, This book is a Anime ...
+### Soul Land II: The Unrivaled Tang Sect
+The story sets in a world where there are martial art essence spirits; A young boy, from an ancient clan, starts out to become a spirit master after his ...
 
-[Read more](https://m.webnovel.com/book/31785144808506805)
+[Read more](https://comics.inkr.com/title/766-soul-land-ii-the-unrivaled-tang-sect)
 
 ---
 
-### 斗罗2：诸神之主
-斗罗2：诸神之主是风行云亦行写的小说，最新章节更新至第658章帝天战叶夕水，二级神——冰狱之主，全文无弹窗在线阅读斗罗2：诸神之主就上QQ阅读男生网.
+### 斗罗大陆2绝世唐门02（新版） - 唐家三少
+霍雨浩和王冬的武魂融合成功了，两人尝试着施展武魂融合技，居然用出了一种极其强大的技能。这个技能被他们命名为璀璨中的凋零、黄金之路。新生考核淘汰赛开始。
 
-[Read more](https://m.xiaoshuo.qq.com/detail/1037211816)
+[Read more](https://weread.qq.com/web/reader/58732990811e3ce80g016c73)
 
 ---
 
