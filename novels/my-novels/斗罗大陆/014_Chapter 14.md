@@ -18,6 +18,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
 ### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
 Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
 
@@ -25,17 +32,10 @@ Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapt
 
 ---
 
-### Soul Land IV (Douluo Dalu) : Ultimate Fighting
-Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+### JamaPunji: Home
+DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
 
-[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
-
----
-
-### Tang Wulin | Soul Land Wiki - Fandom
-Tang Wulin is the main character of Soul land III: Legend of the Dragon King (斗罗大陆 第三部 龙王传说). He is the son of the Sea God & Asura God, Tang San and ...
-
-[Read more](https://soulland.fandom.com/wiki/Tang_Wulin)
+[Read more](https://jamapunji.pk/)
 
 ---
 
