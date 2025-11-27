@@ -25,17 +25,17 @@
 
 ---
 
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
 ### 斗罗大陆(唐家三少) - 阅读
 本站提供斗罗大陆全本免费阅读，还有海量的段章评，和千万读者一起交流看书心得。唐家三少创作的玄幻小说《斗罗大陆》已完本，可以尽情阅读。
 
 [Read more](https://www.qidian.com/book/1115277/)
-
----
-
-### Dou Luo Da Lu
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
