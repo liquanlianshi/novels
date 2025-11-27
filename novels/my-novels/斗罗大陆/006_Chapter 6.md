@@ -32,10 +32,10 @@ Read Chapter 6 of 斗罗：饕餮神牛Novel by 减肥的贪吃熊. Episode 6 '�
 
 ---
 
-### Read Soul Land I Manga Online for Free
-Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
+### Dou Luo Da Lu
+When Tang San turns six, a huge surprise awaits him. His peaceful life in this new world will change completely.
 
-[Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
+[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
