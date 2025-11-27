@@ -18,17 +18,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Sign-In in Douluo Dalu. Chapter 20
-After having lunch together, Wang Feng spent the rest of the day in the academy's library researching information about soul beasts. He was preparing himself ...
+### Dou Luo Da Lu
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
-[Read more](https://m.webnovel.com/book/sign-in-in-douluo-dalu._27293185005057305/chapter-20._73718966140330389)
+[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
-### 斗罗大陆20（漫画版） - 唐家三少
-最炽热偶像团体，斗罗大陆最荫战队“糖水团”来战！面对一群热情可爱的萌妹子，戴沐白突然请求出战，不要因为人家会卖萌会撒娇，就以为人家没有实力哦，萌妹子叉腰登顶：武魂 ...
+### JamaPunji: Home
+DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
 
-[Read more](https://yd.qq.com/web/reader/0e032fc0811e5799ag011deb)
+[Read more](https://jamapunji.pk/)
 
 ---
 
