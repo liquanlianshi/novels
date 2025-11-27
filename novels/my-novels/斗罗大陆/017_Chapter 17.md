@@ -18,13 +18,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land V - Chapter 17
-Soul Land V. Chapter 17. Soul Land V Manhua A generation of god king was reborn in the magical world of Falan. He was surprised to find that everything here ...
-
-[Read more](https://manhuaus.com/manga/soul-land-5-rebirth-of-tang-san/chapter-17/)
-
----
-
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -32,10 +25,17 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Soul Land II - Chapter 17: The Mysterious Ma Xiaotao
-The two of them are in the middle of a conversation when a voice interrupts. It's Nannan, and he's still in love with her. He tells her that he'll love her ...
+### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
+THE LAND OF WARRIORS (EngSub 2024) ☘️ COMPLETED ☘️ EPISODE 1-38POSTED! Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent Season 2 ...
 
-[Read more](https://comics.inkr.com/title/766-soul-land-ii-the-unrivaled-tang-sect/chapter/38428-chapter-17-the-mysterious-ma-xiaotao)
+[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
+
+---
+
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Chapter 1765: Dragon God Lan Xuanyu! Chapter 1764: The Crimson God King Is Injured · Chapter 1763: Human Cannon, Peerless!
+
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
