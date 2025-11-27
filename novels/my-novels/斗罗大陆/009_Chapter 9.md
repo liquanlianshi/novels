@@ -18,6 +18,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Soul Land - Read Free Manga Online
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+
+[Read more](https://bato.si/title/61087-soul-land)
+
+---
+
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -29,13 +36,6 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
 [Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
-
----
-
-### 第9章执行任务？我不同意！
-将自己第一阶段的研究写下后，林风难得放松了心神，打算前去寻找千仞雪。 这几日魂师界震动，武魂殿也是人潮汹涌。 先是千寻疾身死，武魂殿举办仪式，昊天宗在武魂殿压力下 ...
-
-[Read more](https://xuanjianxianzu.bookresource.qq.com/chapter/1040023140/791687182/)
 
 ---
 
