@@ -33,7 +33,7 @@ Ten thousand years later, ice has melted. The Soul Federation Scientific Explora
 ---
 
 ### Douluo Dalu 4: Ultimate Fighting Novel Read Online
-The Douro's federal expedition team discovered an egg with a gold and silver two-color. Chapter 4: Egg-born child 523 days ago
+斗罗大陆IV终极斗罗. Author: Tang_Jia_San_Shao. Read Chapter 1 Add to Library ... 4 Chapter 4: Egg-born child 523 days ago · 5 Chapter 5: Is this just an ...
 
 [Read more](https://www.fanmtl.com/novel/douluo-dalu-4-final-douluo.html)
 
