@@ -25,17 +25,17 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Douluo Dalu - Chapter 12 - Read Free Manga Online
-Douluo Dalu · Chapter 12: Acala. Chapter 1 : Doulou Dalu 1 The Tang apprentice, Chapter 2 : Doulou Dalu ch.2 : Double Spirits! Chapter 3 : Teacher?
+### Read Soul Land I Manga Online for Free
+Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
 
-[Read more](https://bato.si/title/65530/1106051-ch_12)
+[Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
 
 ---
 
-### Biao Ren
-Biao Ren or Blades of the Guardians (镖人), is a Chinese manhua that was written and illustrated by Xianzhe Xu. It was first serialized in the New Comics ...
+### Chapter 12 Bad News
+Read Chapter 12 of Douluo: Returning to Douluo, I Create the Kingdom of Angels Fanfic by Aryan_Kumar_7647. Episode 12 'Chapter 12 Bad News' fanfiction ...
 
-[Read more](https://en.wikipedia.org/wiki/Biao_Ren)
+[Read more](https://m.webnovel.com/book/douluo-returning-to-douluo-i-create-the-kingdom-of-angels_33292057700966005/chapter-12-bad-news_89652063260176756)
 
 ---
 
