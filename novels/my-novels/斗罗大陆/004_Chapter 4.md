@@ -32,10 +32,10 @@ Ten thousand years later, ice has melted. The Soul Federation Scientific Explora
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-Chapter List: Volume 1 – Douluo Continent, Volume 2 – The First Spirit Ring, Volume 3 – Monster Academy, Volume 4 – Shrek Seven Devils, Volume 5 – Star Dou ...
+### Douluo Dalu 4: Ultimate Fighting Novel Read Online
+斗罗大陆IV终极斗罗. Author: Tang_Jia_San_Shao. Read Chapter 1 Add to Library ... 4 Chapter 4: Egg-born child 523 days ago · 5 Chapter 5: Is this just an ...
 
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+[Read more](https://www.fanmtl.com/novel/douluo-dalu-4-final-douluo.html)
 
 ---
 
