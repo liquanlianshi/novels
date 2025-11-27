@@ -11,10 +11,10 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### 斗罗大陆(唐家三少)最新章节在线阅读_唐三小舞戴沐白
-唐门外门弟子唐三，因偷学内门绝学为唐门所不容，跳崖明志时却发现没有死，反而以另外一个身份来到了另一个世界，一个属于武魂的世界，名叫斗罗大陆。
+### Douluo Dalu Gaiden Douluo World - Novel Comic
+... 斗罗大陆外传斗罗 ... Chapter 15 1 years Ago · Chapter 14 1 years Ago · Chapter 13 1 years Ago · Chapter 12 1 years Ago · Chapter 11 1 years Ago ...
 
-[Read more](https://www.shuqi.com/book/46543.html)
+[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
@@ -25,17 +25,17 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 15 1 years Ago · Chapter 14 1 years Ago · Chapter 13 1 years Ago · Chapter 12 1 years Ago · Chapter 11 1 years Ago ...
+### 第十五章皇家拍卖场- 诸天从斗罗开局
+“行！”唐耿点头应了下来，他来到斗罗大陆，还从未参加过拍卖会，也想看看这个世界的拍卖会是啥样子。 马超让侍女取了一个包厢号，说到时候凭着包厢号令牌就可以进入拍卖大厅。
 
-[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
+[Read more](https://m.webnovel.com/book/%E8%AF%B8%E5%A4%A9%E4%BB%8E%E6%96%97%E7%BD%97%E5%BC%80%E5%B1%80_18981400608371304/%E7%AC%AC%E5%8D%81%E4%BA%94%E7%AB%A0%E7%9A%87%E5%AE%B6%E6%8B%8D%E5%8D%96%E5%9C%BA_51021628070927846)
 
 ---
 
-### 斗罗大陆之燃魂战/斗罗大陆2-绝世唐门- 小说全集在线阅读
-斗罗大陆之燃魂战/斗罗大陆2-绝世唐门. 作者：唐家三少. 内容简介：. 大陆传奇 ... 第15章三个月 · 第16章新生考核 · 第17章初次配合，双控场 · 第18章三十三区，三对三 · 第 ...
+### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
+Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
 
-[Read more](https://www.kanunu8.com/book5/douluodalu2/)
+[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
