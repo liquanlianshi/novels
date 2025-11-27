@@ -18,17 +18,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land IV (Douluo Dalu) : Ultimate Fighting
-Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
-
-[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
-
----
-
 ### Soul Land - Read Free Manga Online
 Soul Land, 斗罗大陆, Combat Continent, Soul Land, Dou Luo Da Lu ... Chapter 13. 1 | 0. reply subscribe.. permalinkreport.
 
 [Read more](https://bato.si/title/72446-soul-land)
+
+---
+
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
