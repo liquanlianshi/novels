@@ -25,15 +25,15 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... SECTION 3 –DAITŌ-RYŪ: THE PAST IS FUTURE Chapter 9 – Aizu Bujutsu ...
+### Dou Luo Da Lu
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
+[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
 ### 第9章执行任务？我不同意！
-第9章执行任务？我不同意！的内容摘要:将自己第一阶段的研究写下后，林风难得放松了心神，打算前去寻找千仞雪。 这几日魂师界震动，武魂殿也是人潮汹涌。 先是千寻疾身死， ...
+将自己第一阶段的研究写下后，林风难得放松了心神，打算前去寻找千仞雪。 这几日魂师界震动，武魂殿也是人潮汹涌。 先是千寻疾身死，武魂殿举办仪式，昊天宗在武魂殿压力下 ...
 
 [Read more](https://xuanjianxianzu.bookresource.qq.com/chapter/1040023140/791687182/)
 
