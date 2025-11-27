@@ -18,6 +18,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Silence and Storm - Chapter 21 - sirjahzz27 - 斗罗大陆
+Chapter Text. The harbor city did not greet them so much as endure them. They had already passed beneath the broken lion-arches and walked ...
+
+[Read more](https://archiveofourown.org/works/71208706/chapters/188364156)
+
+---
+
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -26,16 +33,9 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 ---
 
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
-Read Novel and Comic Online All Chapters. The God Kings who were bored in the God Realm took turns going to Shrek Academy in the Douluo ...
+... 斗罗大陆外传斗罗 ... Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago ...
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
-
----
-
-### Douluo Dalu - Soul Land | Novels Xianxia&Xuanhuan Wiki
-A land where only the mystical souls of battle lay. The continent of Douluo. How will Tang San survive in this unknown environment?
-
-[Read more](https://novels-xianxiaxuanhuan.fandom.com/wiki/Douluo_Dalu_-_Soul_Land)
 
 ---
 
