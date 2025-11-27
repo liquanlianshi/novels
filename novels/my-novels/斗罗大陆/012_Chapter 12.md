@@ -11,13 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
-
-[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
-
----
-
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -25,10 +18,17 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Read Soul Land I Manga Online for Free
-Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
+### Douluo Dalu Gaiden Douluo World - Novel Comic
+... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
 
-[Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
+[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
+
+---
+
+### Biao Ren
+Biao Ren or Blades of the Guardians (镖人), is a Chinese manhua that was written and illustrated by Xianzhe Xu. It was first serialized in the New Comics ...
+
+[Read more](https://en.wikipedia.org/wiki/Biao_Ren)
 
 ---
 
