@@ -18,6 +18,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### 斗罗大陆（六） -- 唐家三少-京东阅读
+封面. 版权信息. 第345章史莱克学院VS炽火学院（上）. 第346章史莱克学院VS炽火学院（中）. 第347章史莱克学院VS炽火学院（下）. 第348章火免，蓝银草（上）.
+
+[Read more](https://cread.jd.com/read/startRead.action?bookId=30546665&readType=1)
+
+---
+
 ### Soul Land - Read Free Manga Online
 Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
@@ -29,13 +36,6 @@ Tang San was a talented apprentice to the great Tang Sect. Due to mastering the 
 Read Chapter 6 of 斗罗：饕餮神牛Novel by 减肥的贪吃熊. Episode 6 '第6章邀请加入武魂殿' story update online for free. 就在玄墨有些忘乎所以的时候，接下来素云涛 ...
 
 [Read more](https://m.webnovel.com/book/19154895908576504/51418684224669092)
-
----
-
-### Dou Luo Da Lu
-When Tang San turns six, a huge surprise awaits him. His peaceful life in this new world will change completely.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
