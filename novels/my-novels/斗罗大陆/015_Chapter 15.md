@@ -32,10 +32,10 @@ Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english
 
 ---
 
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
