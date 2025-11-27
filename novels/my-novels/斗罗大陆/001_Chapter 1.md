@@ -18,6 +18,13 @@
 
 ---
 
+### Douluo: Super Sex Slave System - Chapter 1 - UIGOD
+"Ah~ It's so big, I'm going to be fucked to death. Looks like Huan'er wins this time." In a small villa in Tiandou City, a young man lay on ...
+
+[Read more](https://archiveofourown.org/works/72581391)
+
+---
+
 ### 斗罗大陆_最新章节全文免费在线阅读
 伴随着魂导科技的进步，斗罗大陆上的人类征服了海洋，又发现了两片大陆。魂兽也随着人类魂师的猎杀无度走向灭亡，沉睡无数年的魂兽之王在星斗大森林最后的净土苏醒，它要 ...
 
@@ -29,13 +36,6 @@
 本站提供斗罗大陆全本免费阅读，还有海量的段章评，和千万读者一起交流看书心得。唐家三少创作的玄幻小说《斗罗大陆》已完本，可以尽情阅读。
 
 [Read more](https://www.qidian.com/book/1115277/)
-
----
-
-### Dou Luo Da Lu
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
