@@ -11,6 +11,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Soul Land - Read Free Manga Online
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+
+[Read more](https://bato.si/title/61087-soul-land)
+
+---
+
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 9 1 years Ago · Chapter 8 1 years Ago · Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago ...
 
@@ -25,17 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Soul Land - Read Free Manga Online
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
+THE LAND OF WARRIORS (EngSub 2024) ☘️ COMPLETED ☘️ EPISODE 1-38POSTED! Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent Season 2 ...
 
-[Read more](https://bato.si/title/61087-soul-land)
-
----
-
-### Dou Luo Da Lu
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
+[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
