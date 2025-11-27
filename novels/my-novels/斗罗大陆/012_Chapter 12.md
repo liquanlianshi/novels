@@ -11,13 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
 
@@ -25,17 +18,24 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
+### Chapter 12: Registration - Douluo Dalu
+Read Chapter 12 of Douluo Dalu: Royal Dragon Astonishing the World Fanfic by Kisshot. Episode 12 'Chapter 12: Registration' fanfiction update online for ...
+
+[Read more](https://m.webnovel.com/book/douluo-dalu-royal-dragon-astonishing-the-world_25419586406142005/chapter-12-registration_68592398418100622)
+
+---
+
 ### Read Soul Land I Manga Online for Free
 Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
 
 [Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
-
----
-
-### Chapter 12 Bad News
-Read Chapter 12 of Douluo: Returning to Douluo, I Create the Kingdom of Angels Fanfic by Aryan_Kumar_7647. Episode 12 'Chapter 12 Bad News' fanfiction ...
-
-[Read more](https://m.webnovel.com/book/douluo-returning-to-douluo-i-create-the-kingdom-of-angels_33292057700966005/chapter-12-bad-news_89652063260176756)
 
 ---
 
