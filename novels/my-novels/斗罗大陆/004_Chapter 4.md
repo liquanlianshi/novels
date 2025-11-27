@@ -32,10 +32,10 @@ Ten thousand years later, ice has melted. The Soul Federation Scientific Explora
 
 ---
 
-### Douluo Dalu 4: Ultimate Fighting Novel Read Online
-斗罗大陆IV终极斗罗. Author: Tang_Jia_San_Shao. Read Chapter 1 Add to Library ... 4 Chapter 4: Egg-born child 523 days ago · 5 Chapter 5: Is this just an ...
+### Soul Land : Douluo Dalu ,Chapter 4
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
-[Read more](https://www.fanmtl.com/novel/douluo-dalu-4-final-douluo.html)
+[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-4/)
 
 ---
 
