@@ -18,17 +18,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### 《斗罗大陆V重生唐三》小说在线阅读
-一代神王唐三，带着一点神识在宇宙中遨游，寻找妻子转世重生的世界。在神识的牵引下，他来到了一个叫做妖精大陆的地方，而他却发现，这是一个人类为刍狗的 ...
-
-[Read more](https://www.qidian.com/book/1027996625/)
-
----
-
 ### Read Douluo Dalu 5 Rebirth of Tang San RAW English ...
 Douluo Dalu 5 Rebirth of Tang San; 斗罗大陆5重生唐三. Status, Completed. Date Added, February 28, 2022. Author. 唐家三少 · Tang Jia San Shao.
 
 [Read more](https://wtr-lab.com/en/novel/100/douluo-dalu-5-rebirth-of-tang-san)
+
+---
+
+### 《斗罗大陆V重生唐三》小说在线阅读
+一代神王唐三，带着一点神识在宇宙中遨游，寻找妻子转世重生的世界。在神识的牵引下，他来到了一个叫做妖精大陆的地方，而他却发现，这是一个人类为刍狗的 ...
+
+[Read more](https://www.qidian.com/book/1027996625/)
 
 ---
 
