@@ -5,7 +5,7 @@
 > **Note:** This content is retrieved via Serper Search Snippets as the LLM generation was disabled. Full content extraction requires visiting the source link.
 
 ### 斗罗大陆第三章
-这篇文档描述了小舞在淫魂岛上的绝望境遇，她被不乐囚禁并面临着屈辱和折磨。小舞的内心充满恐惧与无助，她渴望逃离这个黑暗的地方，回到唐三的身边。See more
+这篇文档描述了小舞在淫魂岛上的绝望境遇，她被不乐囚禁并面临着屈辱和折磨。小舞的内心充满恐惧与无助，她渴望逃离这个黑暗的地方，回到唐三的身边。
 
 [Read more](https://www.scribd.com/document/882117102/%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86%E7%AC%AC%E4%B8%89%E7%AB%A0)
 
@@ -25,17 +25,17 @@
 
 ---
 
-### Manga Soul Land III - The Legend of the Dragon King Read
-Soul Land III - The Legend of the Dragon King is a manga/manhwa/manhua written by Tang Jia San Shao, and is updated fast and free on www.mgeko.cc.
+### Soul Land : Douluo Dalu ,Chapter 3
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
-[Read more](https://www.mgeko.cc/manga/soul-land-iii-the-legend-of-the-dragon-kings/)
+[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-3/)
 
 ---
 
-### Soul Land : Douluo Dalu ,Chapter 3
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.See more
+### 斗罗大陆3 龙王传说漫画版1（新版） - 唐家三少
+普通家庭出身的唐舞麟，立志要成为一名强大的魂师，可当其武魂觉醒时，苏醒的却是废武魂——蓝银草！ 为了变得更强，唐舞麟不得不付出比常人更多的努力，踏上了充满挑战的人生 ...
 
-[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-3/)
+[Read more](https://weread.qq.com/web/reader/7d132040811e345ceg014a94)
 
 ---
 
