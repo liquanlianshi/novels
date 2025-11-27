@@ -18,17 +18,17 @@
 
 ---
 
-### Soul Land : Douluo Dalu ,Chapter 2
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
-
-[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-2/)
-
----
-
 ### Douluo Dalu 2:You are an Evil Soul Master,but also a good ...
 Read 'Douluo Dalu 2:You are an Evil Soul Master,but also a good person(Comp)' Online for Free, written by the author Godlancelot, This book is a Anime ...
 
 [Read more](https://m.webnovel.com/book/31785144808506805)
+
+---
+
+### Soul Land : Douluo Dalu ,Chapter 2
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+
+[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-2/)
 
 ---
 
