@@ -25,17 +25,17 @@
 
 ---
 
-### 斗罗大陆- 唐家三少
-唐门外门弟子唐三，因偷学内门绝学为唐门所不容，跳崖明志时却来到了另一个世界。一个属于武魂的世界——斗罗大陆。 这里没有魔法，没有斗气，没有武术，却有神奇的武魂。
-
-[Read more](https://www.hetushu.com/book/27/index.html)
-
----
-
 ### Soul Land : Douluo Dalu ,Chapter 3
 Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
 [Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-3/)
+
+---
+
+### Manga Soul Land III - The Legend of the Dragon King Read
+Soul Land III - The Legend of the Dragon King is a manga/manhwa/manhua written by Tang Jia San Shao, and is updated fast and free on www.mgeko.cc.
+
+[Read more](https://www.mgeko.cc/manga/soul-land-iii-the-legend-of-the-dragon-kings/)
 
 ---
 
