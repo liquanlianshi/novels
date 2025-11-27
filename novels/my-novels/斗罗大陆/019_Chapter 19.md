@@ -11,20 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land – Legend of the Gods' Realm – Chapter 19
-Soul Land – Legend of the Gods' Realm – Chapter 19. 001 024. Read online: http://www.ragnarok-scans.com/SL-C19.htm. Follow XF-Ragnarok Scans ...
-
-[Read more](https://thesomethingstranslations.wordpress.com/2017/05/15/soul-land-legend-of-the-gods-realm-chapter-19/)
-
----
-
-### Soul Land V - Chapter 19
-Soul Land V. Chapter 19. Soul Land V Manhua A generation of god king was reborn in the magical world of Falan. He was surprised to find that everything here ...
-
-[Read more](https://manhuaus.com/manga/soul-land-5-rebirth-of-tang-san/chapter-19/)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 19 1 years Ago · Chapter 18 1 years Ago · Chapter 17 1 years Ago · Chapter 16 1 years Ago · Chapter 15 1 years Ago ...
 
@@ -32,10 +18,24 @@ Soul Land V. Chapter 19. Soul Land V Manhua A generation of god king was reborn 
 
 ---
 
-### 番外19 - 斗罗大陆漫画
-斗罗大陆网提供斗罗大陆漫画番外19在线阅读,斗罗大陆漫画目前连载中,我们将第一时间为您更新.
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
-[Read more](https://www.dluodalu.cc/manhua/douluodalu/12331.html)
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+
+---
+
+### Liu Yuning discography
+This is the discography for Chinese singer Liu Yuning. Liu Yuning discography. Studio albums, 2. EPs, 2. Singles, 34. Music videos, 10. Contents.
+
+[Read more](https://en.wikipedia.org/wiki/Liu_Yuning_discography)
 
 ---
 
