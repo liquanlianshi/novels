@@ -11,17 +11,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### Douluo Dalu - Chapter 11 - Read Free Manga Online at ...
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+
+[Read more](https://xbato.com/title/65530-douluo-dalu/1106050-ch_11)
+
+---
+
 ### Douluo Dalu 3: Legend of the White Fox (Completed)
 Chapter 11: Na'er. Bam! Wu Zhagkong slammed the communicator down, his eyes flashing with killing intent. He had never felt such a strong urge to ...
 
 [Read more](https://m.webnovel.com/book/douluo-dalu-3-legend-of-the-white-fox-(completed)_31699447700884805/chapter-11-na'er_85117090775754639)
-
----
-
-### Chapter List - Blue Silver Translations - WordPress.com
-There are a total of 950ish chapters and as of 11/28/16 442 have been released. I absolutely love the characters. I'm going to have to try out these others you' ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
 ---
 
@@ -32,10 +32,10 @@ There are a total of 950ish chapters and as of 11/28/16 442 have been released. 
 
 ---
 
-### Soul Land Chapter 11 Palace Chambers Shaken Up
-⚡ 《斗罗大陆》Soul Land | 全集79-170！唐三强势崛起，主宰四方，此生无悔入唐门！！ Full Version | MUTI SUB | Donghua. 刀哥说动漫•43K views.
+### Chapter List - Blue Silver Translations - WordPress.com
+i just read up to manga chapter 11 where they are entering the academy. Can any one tell me which chapter is that in the novel? LikeLike. Reply. Adam's avatar ...
 
-[Read more](https://www.youtube.com/watch?v=K_XZM3puu6I)
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
 ---
 
