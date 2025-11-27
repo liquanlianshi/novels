@@ -11,13 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
 
@@ -25,17 +18,24 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
+### Douluo Dalu - Chapter 12 - Read Free Manga Online
+Douluo Dalu · Chapter 12: Acala. Chapter 1 : Doulou Dalu 1 The Tang apprentice, Chapter 2 : Doulou Dalu ch.2 : Double Spirits! Chapter 3 : Teacher?
+
+[Read more](https://bato.si/title/65530/1106051-ch_12)
+
+---
+
 ### Read Soul Land I Manga Online for Free
 Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
 
 [Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
-
----
-
-### Dou Luo Da Lu
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
