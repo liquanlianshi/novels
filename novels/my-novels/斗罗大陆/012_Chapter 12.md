@@ -11,13 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-Chapter List: Volume 1 – Douluo Continent, Volume 2 – The First Spirit Ring, Volume 3 – Monster Academy, Volume 4 – Shrek Seven Devils, Volume 5 – Star Dou ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
 
@@ -25,17 +18,24 @@ Chapter List: Volume 1 – Douluo Continent, Volume 2 – The First Spirit Ring,
 
 ---
 
+### Chapter 12: Registration - Douluo Dalu
+Read Chapter 12 of Douluo Dalu: Royal Dragon Astonishing the World Fanfic by Kisshot. Episode 12 'Chapter 12: Registration' fanfiction update online for ...
+
+[Read more](https://m.webnovel.com/book/douluo-dalu-royal-dragon-astonishing-the-world_25419586406142005/chapter-12-registration_68592398418100622)
+
+---
+
+### Chapter List - Blue Silver Translations - WordPress.com
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+
+[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+
+---
+
 ### Read Soul Land I Manga Online for Free
 Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
 
 [Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
-
----
-
-### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-നമ്മുക്ക് pപലർക്കും അധികം aഅറിയാത്ത 2 സീരീസ് പരിചയപെടുത്താമെന്നു വിചാരിക്കുന്നു . 1) Soul land 2) Battle through the heaven വളരെ addictive ആയേക്കാവുന്ന cultivation, martial arts, ...
-
-[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
