@@ -11,10 +11,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...
+### To Live Chapter 6, a Bleach + ManHua/Chinese Comics ...
+Ichi Guo stood in the center of a small clearing surrounded by flowers that tended to ward away monsters who disliked their unstable aura.
 
-[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
+[Read more](https://www.fanfiction.net/s/12064043/6/To-Live)
+
+---
+
+### Silence and Storm - Chapter 21 - sirjahzz27 - 斗罗大陆
+Chapter Text. The harbor city did not greet them so much as endure them. They had already passed beneath the broken lion-arches and walked ...
+
+[Read more](https://archiveofourown.org/works/71208706/chapters/188364156)
 
 ---
 
@@ -25,17 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Soul Land - Read Free Manga Online
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+### Douluo Dalu Gaiden Douluo World - Novel Comic
+... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...
 
-[Read more](https://bato.si/title/61087-soul-land)
-
----
-
-### Dou Luo Da Lu
-When Tang San turns six, a huge surprise awaits him. His peaceful life in this new world will change completely.
-
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
+[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
