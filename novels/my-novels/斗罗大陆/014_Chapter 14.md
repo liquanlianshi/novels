@@ -33,7 +33,7 @@ Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapt
 ---
 
 ### JamaPunji: Home
-DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
+Investment Basics · Mutual Funds · Pension Funds · Real Estate Investment Trust · Leasing Companies · Investment Banks · Capital Market · Bonds.
 
 [Read more](https://jamapunji.pk/)
 
