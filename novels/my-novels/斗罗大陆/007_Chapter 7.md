@@ -12,30 +12,30 @@ Soul Land II Chapter 7 ------------------------------ Author(s) : Tang Jia San S
 ---
 
 ### Soul Land : Douluo Dalu ,Chapter 7
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.See more
 
 [Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-7/)
 
 ---
 
 ### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...See more
 
 [Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
 ---
 
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago ...
+... 斗罗大陆外传斗罗 ... Chapter 7 1 years Ago · Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago ...See more
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
-### Douluo Dalu - Chapter 7 - Read Free Manga Online
-Douluo Dalu · Chapter 7: First Spirit Skill. Chapter 1 : The Tang Apprentice, Chapter 2 : Double Spirits! (Fixed) · Chapter 3 : Teacher? Master!
+### Douluo Dalu - Soul Land | Novels Xianxia&Xuanhuan Wiki
+A land where only the mystical souls of battle lay. The continent of Douluo. How will Tang San survive in this unknown environment?See more
 
-[Read more](https://bato.si/title/13649-en-douluo-dalu/260513-ch_7)
+[Read more](https://novels-xianxiaxuanhuan.fandom.com/wiki/Douluo_Dalu_-_Soul_Land)
 
 ---
 
