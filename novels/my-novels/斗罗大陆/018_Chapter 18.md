@@ -32,10 +32,10 @@ Ten thousand years later, ice has melted. The Soul Federation Scientific Explora
 
 ---
 
-### JamaPunji: Home
-DISCLAIMER: Please be informed that “Jamapunji” is an investor education initiative of the Securities and Exchange Commission of Pakistan. We do not sell or ...
+### Douluo Continent Novel Read Online
+斗罗大陆之焱雷天凤. Author: 遮迦越罗. Read Chapter 1 Add to Library. 111 ... 18 Chapter 18 Enlighten Bibi Dong 673 days ago · 19 Chapter 19 Dao Liu 673 days ...
 
-[Read more](https://jamapunji.pk/)
+[Read more](https://www.fanmtl.com/novel/ke287148.html)
 
 ---
 
