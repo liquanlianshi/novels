@@ -18,24 +18,24 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter 14 - Soul Land - Legend of The Gods' Realm
-Read Soul Land - Legend of The Gods' Realm Ch. 14 on MangaDex!
+### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
+Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent ... Chapter 14 – Aikidō is Three Peaches Chapter 15 – Hidden in Plain Sight Chapter ...
 
-[Read more](https://mangadex.org/chapter/c9dc0ec6-1ef9-4508-8f1a-c638c66d6247)
-
----
-
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+[Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
-### Chapter 14 - soul land: douluo dalu the game
-Read Chapter 14 of SOUL LAND: DOULUO DALU THE GAME Novel by SHADOW_YAGAMI. Episode 14 'Chapter 14' story update online for free.
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
-[Read more](https://m.webnovel.com/book/soul-land-douluo-dalu-the-game_21126292406516605/chapter-14_56916327692034355)
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+
+---
+
+### Tang Wulin | Soul Land Wiki - Fandom
+Tang Wulin is the main character of Soul land III: Legend of the Dragon King (斗罗大陆 第三部 龙王传说). He is the son of the Sea God & Asura God, Tang San and ...
+
+[Read more](https://soulland.fandom.com/wiki/Tang_Wulin)
 
 ---
 
