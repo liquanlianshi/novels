@@ -32,10 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Douluo Dalu - Soul Land | Novels Xianxia&Xuanhuan Wiki
-A land where only the mystical souls of battle lay. The continent of Douluo. How will Tang San survive in this unknown environment?
+### Douluo Dalu - Chapter 7 - Read Free Manga Online
+Douluo Dalu · Chapter 7: First Spirit Skill. Chapter 1 : The Tang Apprentice, Chapter 2 : Double Spirits! (Fixed) · Chapter 3 : Teacher? Master!
 
-[Read more](https://novels-xianxiaxuanhuan.fandom.com/wiki/Douluo_Dalu_-_Soul_Land)
+[Read more](https://bato.si/title/13649-en-douluo-dalu/260513-ch_7)
 
 ---
 
