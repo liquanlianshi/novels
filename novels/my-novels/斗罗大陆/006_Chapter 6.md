@@ -18,17 +18,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### CHAPTER 6 - soul land: douluo dalu the game
-Read Chapter 6 of SOUL LAND: DOULUO DALU THE GAME Novel by SHADOW_YAGAMI. Episode 6 'CHAPTER 6' story update online for free. 「 Everyone had martial soul, ...
+### Soul Land - Read Free Manga Online
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
-[Read more](https://m.webnovel.com/book/soul-land-douluo-dalu-the-game_21126292406516605/chapter-6_56789177869594645)
+[Read more](https://bato.si/title/61087-soul-land)
 
 ---
 
-### Soul Land (Official) - Chapter 6 - Read Free Manga Online
-Soul Land (Official), Combat Continent, Lands of Battle, Douluo Dalu, 斗罗大陆 ... Chapter 6, Chapter 7 · Chapter 8 · Chapter 9 · Chapter 10 · Chapter 11 ...
+### 第6章邀请加入武魂殿- 斗罗
+Read Chapter 6 of 斗罗：饕餮神牛Novel by 减肥的贪吃熊. Episode 6 '第6章邀请加入武魂殿' story update online for free. 就在玄墨有些忘乎所以的时候，接下来素云涛 ...
 
-[Read more](https://bato.si/title/126848/2306380-ch_6)
+[Read more](https://m.webnovel.com/book/19154895908576504/51418684224669092)
 
 ---
 
