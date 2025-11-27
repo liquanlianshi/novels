@@ -11,13 +11,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Douluo Dalu Gaiden Douluo World - Novel Comic
-... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
-
-[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
-
----
-
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -25,10 +18,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Chapter 12: Registration - Douluo Dalu
-Read Chapter 12 of Douluo Dalu: Royal Dragon Astonishing the World Fanfic by Kisshot. Episode 12 'Chapter 12: Registration' fanfiction update online for ...
+### Douluo Dalu Gaiden Douluo World - Novel Comic
+... 斗罗大陆外传斗罗 ... Chapter 12 1 years Ago · Chapter 11 1 years Ago · Chapter 10 1 years Ago · Chapter 9 1 years Ago · Chapter 8 1 years Ago ...
 
-[Read more](https://m.webnovel.com/book/douluo-dalu-royal-dragon-astonishing-the-world_25419586406142005/chapter-12-registration_68592398418100622)
+[Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
@@ -36,6 +29,13 @@ Read Chapter 12 of Douluo Dalu: Royal Dragon Astonishing the World Fanfic by Kis
 Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
 
 [Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
+
+---
+
+### Dou Luo Da Lu
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+
+[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
 
 ---
 
