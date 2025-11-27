@@ -32,10 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Dou Luo Da Lu
-Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
+### MCD Search Results
+This chapter describes the local coverage determinations (LCD) process. One significant change is the relocation of codes (ICD-10-CM, CPT/HCPCS, Bill Type, and ...
 
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
+[Read more](https://www.cms.gov/medicare-coverage-database/search-results.aspx?keyword=sjmine.com%20bitcoing%20miner)
 
 ---
 
