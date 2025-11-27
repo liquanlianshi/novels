@@ -32,10 +32,10 @@ Ten thousand years later, ice has melted. The Soul Federation Scientific Explora
 
 ---
 
-### Legend of the God Realm in Douluo mainland
-斗罗大陆外传神界传说. Author: 唐家三少. Read Chapter 1 Add to Library. 120 ... 18 Chapter 18 Seal 670 days ago · 19 Chapter 19 Controlling the God Realm 670 ...
+### Light Novel III | Soul Land Wiki - Fandom
+The Chapters posted here are translated by Radiant Translations from the Chinese Raws. The translation was move to WuxiaWorld due to it's large reader base.
 
-[Read more](https://www.fanmtl.com/novel/ke147015.html)
+[Read more](https://soulland.fandom.com/wiki/Light_Novel_III)
 
 ---
 
