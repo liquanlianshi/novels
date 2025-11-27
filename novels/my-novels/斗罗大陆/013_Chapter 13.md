@@ -18,13 +18,6 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### 第十三章武魂殿的布局，风云序幕
 Read Chapter 13 of 从斗罗开始万界抽奖Novel by 二次元的风. Episode 13 '第十三章武魂殿的布局，风云序幕' story update online for free. 行走在星斗大森林的灌木林 ...
 
@@ -36,6 +29,13 @@ Read Chapter 13 of 从斗罗开始万界抽奖Novel by 二次元的风. Episode 
 Soul Land, 斗罗大陆, Combat Continent, Soul Land, Dou Luo Da Lu ... Chapter 13. 1 | 0. reply subscribe.. permalinkreport.
 
 [Read more](https://bato.si/title/72446-soul-land)
+
+---
+
+### Soul Land IV (Douluo Dalu) : Ultimate Fighting
+Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+
+[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
 
 ---
 
