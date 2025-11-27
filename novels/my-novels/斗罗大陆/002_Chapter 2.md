@@ -11,13 +11,6 @@
 
 ---
 
-### Soul Land : Douluo Dalu ,Chapter 2
-Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
-
-[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-2/)
-
----
-
 ### 斗罗大陆之燃魂战/斗罗大陆2-绝世唐门- 小说全集在线阅读
 唐门创立万年之后的斗罗大陆上，唐门式微。一代天骄横空出世，新一代史莱克七怪能否重振唐门，谱写一曲绝世唐门之歌？百万 ...
 
@@ -25,10 +18,17 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Soul Land II: The Unrivaled Tang Sect
-The story sets in a world where there are martial art essence spirits; A young boy, from an ancient clan, starts out to become a spirit master after his ...
+### Douluo Dalu 2:You are an Evil Soul Master,but also a good ...
+Read 'Douluo Dalu 2:You are an Evil Soul Master,but also a good person(Comp)' Online for Free, written by the author Godlancelot, This book is a Anime ...
 
-[Read more](https://comics.inkr.com/title/766-soul-land-ii-the-unrivaled-tang-sect)
+[Read more](https://m.webnovel.com/book/31785144808506805)
+
+---
+
+### Soul Land : Douluo Dalu ,Chapter 2
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+
+[Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-2/)
 
 ---
 
