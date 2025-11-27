@@ -11,6 +11,20 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### 斗罗大陆19（漫画版） - 唐家三少
+原著介绍：《斗罗大陆》是起点白金作家唐家三少的一部经典玄幻小说，在起点中文网连载以来获得惊人的6000万点击量，多次登上月票榜榜首，人气、口碑双丰收，堪称唐家三少较 ...
+
+[Read more](https://weread.qq.com/web/reader/9a232dc0811e33806g0108d3)
+
+---
+
+### Douluo Dalu ( Soul Land ) Manhua Chapter 19
+Douluo Dalu ( Soul Land ) Chapter 19: Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured ...
+
+[Read more](https://mangadna.com/manga/douluo-dalu-soul-land/chapter-19)
+
+---
+
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
 ... 斗罗大陆外传斗罗 ... Chapter 19 1 years Ago · Chapter 18 1 years Ago · Chapter 17 1 years Ago · Chapter 16 1 years Ago · Chapter 15 1 years Ago ...
 
@@ -18,24 +32,10 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Soul Land IV (Douluo Dalu) : Ultimate Fighting
 Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
 [Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
-
----
-
-### Liu Yuning discography
-This is the discography for Chinese singer Liu Yuning. Liu Yuning discography. Studio albums, 2. EPs, 2. Singles, 34. Music videos, 10. Contents.
-
-[Read more](https://en.wikipedia.org/wiki/Liu_Yuning_discography)
 
 ---
 
