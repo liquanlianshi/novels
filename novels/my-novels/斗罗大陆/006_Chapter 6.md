@@ -11,31 +11,31 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### 斗罗大陆（六） -- 唐家三少-京东阅读
-斗罗大陆(六) -- 唐家三少-京东阅读-在线阅读温馨提示数字《斗罗大陆(六)》 默认复古护眼夜间,仅支持Firefox/Chrome/IE9+以上版本
-
-[Read more](https://cread.jd.com/read/startRead.action?bookId=30546665&readType=1)
-
----
-
 ### Douluo Dalu Gaiden Douluo World - Novel Comic
-Read Novel and Comic Online All Chapters. The God Kings who were bored in the God Realm took turns going to Shrek Academy in the Douluo ...
+... 斗罗大陆外传斗罗 ... Chapter 6 1 years Ago · Chapter 5 1 years Ago · Chapter 4 1 years Ago · Chapter 3 1 years Ago · Chapter 2 1 years Ago ...
 
 [Read more](https://www.novelcomic.com/2024/08/douluo-dalu-gaiden-douluo-world.html)
 
 ---
 
-### Dou Luo Da Lu
-When Tang San turns six, a huge surprise awaits him. His peaceful life in this new world will change completely.
+### 斗罗之从签到开始做龙神Chapter 6 - 第六章室友
+Read Chapter 6 of 斗罗之从签到开始做龙神Novel by 歌舞技. Episode 6 '第六章室友' story update online for free. “第一魂技，流星拳。”室友拳头犹如是雨点一般向着 ...
 
-[Read more](https://mangadex.org/title/39d875a6-5df3-4323-a2da-3a0b50af429a/dou-luo-da-lu)
+[Read more](https://m.webnovel.com/book/%E6%96%97%E7%BD%97%E4%B9%8B%E4%BB%8E%E7%AD%BE%E5%88%B0%E5%BC%80%E5%A7%8B%E5%81%9A%E9%BE%99%E7%A5%9E_16836626905068004/%E7%AC%AC%E5%85%AD%E7%AB%A0-%E5%AE%A4%E5%8F%8B_45310036192764161)
 
 ---
 
-### 第6章邀请加入武魂殿- 斗罗
-Read Chapter 6 of 斗罗：饕餮神牛Novel by 减肥的贪吃熊. Episode 6 '第6章邀请加入武魂殿' story update online for free. 就在玄墨有些忘乎所以的时候，接下来素云涛 ...
+### Soul Land - Read Free Manga Online
+Tang San was a talented apprentice to the great Tang Sect. Due to mastering the forbidden Tang arts, he was pressured to jump off a cliff and died.
 
-[Read more](https://m.webnovel.com/book/19154895908576504/51418684224669092)
+[Read more](https://bato.si/title/61087-soul-land)
+
+---
+
+### Read Soul Land I Manga Online for Free
+Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
+
+[Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
 
 ---
 
