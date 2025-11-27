@@ -11,10 +11,10 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### 斗罗大陆= Soul Land - 21 21 - 穆逢春编绘;唐家三少原作
-Available Formats. Download as PDF, TXT or read online on Scribd. Go to previous items. Go to next items. Download. SaveSave 斗罗大陆= Soul Land _ 21 21 ...
+### Legend of The Gods' Realm - Read Free Manga Online
+Soul Land - Legend of The Gods' Realm, 斗罗大陆之神界传说, 斗 ... Chapter 21. 0. 4+727. 2779 days ago. Chapter 19. 0. 3+795.
 
-[Read more](https://www.scribd.com/document/894457830/%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86-Soul-Land-21-21-%E7%A9%86%E9%80%A2%E6%98%A5%E7%BC%96%E7%BB%98-%E5%94%90%E5%AE%B6%E4%B8%89%E5%B0%91%E5%8E%9F%E4%BD%9C-%E9%A3%8E%E7%82%AB%E5%8A%A8%E6%BC%AB%E7%BC%96%E5%88%9B-%E7%A9%86%E9%80%A2%E6%98%A5-%E5%94%90%E5%AE%B6%E4%B8%89%E5%B0%91-%E9%A3%8E%E7%82%AB%E5%8A%A8%E6%BC%AB-Xi-Lie-Di-2-%E5%9B%9B%E5%B7%9D%E7%BE%8E%E6%9C%AF%E5%87%BA%E7%89%88%E7%A4%BE-Si-Chuan-Mei-9787541072017-17e9cc05d0ab623207a4459)
+[Read more](https://bato.si/title/50730)
 
 ---
 
@@ -25,17 +25,17 @@ Available Formats. Download as PDF, TXT or read online on Scribd. Go to previous
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
+### Soul Land V Manhua Chapter 21
+Soul Land V Chapter 21: Can a generation of god-king be reborn in this world that is not friendly to mankind, can Tang San recover his wife again?
 
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
+[Read more](https://mangadna.com/manga/soul-land-v/chapter-21)
 
 ---
 
-### Soul Land IV (Douluo Dalu) : Ultimate Fighting
-Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
+### 斗罗大陆= Soul Land - 21 21 - 穆逢春编绘;唐家三少原作
+Available Formats. Download as PDF, TXT or read online on Scribd. Go to previous items. Go to next items. Download. SaveSave 斗罗大陆= Soul Land _ 21 21 ...
 
-[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+[Read more](https://www.scribd.com/document/894457830/%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86-Soul-Land-21-21-%E7%A9%86%E9%80%A2%E6%98%A5%E7%BC%96%E7%BB%98-%E5%94%90%E5%AE%B6%E4%B8%89%E5%B0%91%E5%8E%9F%E4%BD%9C-%E9%A3%8E%E7%82%AB%E5%8A%A8%E6%BC%AB%E7%BC%96%E5%88%9B-%E7%A9%86%E9%80%A2%E6%98%A5-%E5%94%90%E5%AE%B6%E4%B8%89%E5%B0%91-%E9%A3%8E%E7%82%AB%E5%8A%A8%E6%BC%AB-Xi-Lie-Di-2-%E5%9B%9B%E5%B7%9D%E7%BE%8E%E6%9C%AF%E5%87%BA%E7%89%88%E7%A4%BE-Si-Chuan-Mei-9787541072017-17e9cc05d0ab623207a4459)
 
 ---
 
