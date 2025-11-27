@@ -11,6 +11,13 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
+### 斗罗大陆(唐家三少)最新章节在线阅读_唐三小舞戴沐白
+唐门外门弟子唐三，因偷学内门绝学为唐门所不容，跳崖明志时却发现没有死，反而以另外一个身份来到了另一个世界，一个属于武魂的世界，名叫斗罗大陆。
+
+[Read more](https://www.shuqi.com/book/46543.html)
+
+---
+
 ### Chapter List - Blue Silver Translations - WordPress.com
 If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
 
@@ -25,17 +32,10 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 
 ---
 
-### Read Soul Land I Manga Online for Free
-Soul Land I is a Manga/Manhwa/Manhua in english language, Action series, english chapters have been translated and you can read them here.
+### 斗罗大陆之燃魂战/斗罗大陆2-绝世唐门- 小说全集在线阅读
+斗罗大陆之燃魂战/斗罗大陆2-绝世唐门. 作者：唐家三少. 内容简介：. 大陆传奇 ... 第15章三个月 · 第16章新生考核 · 第17章初次配合，双控场 · 第18章三十三区，三对三 · 第 ...
 
-[Read more](https://www.mgeko.cc/manga/soul-land-iasd/)
-
----
-
-### Soul Land IV (Douluo Dalu) : Ultimate Fighting
-Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
-
-[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+[Read more](https://www.kanunu8.com/book5/douluodalu2/)
 
 ---
 
