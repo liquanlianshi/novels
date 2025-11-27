@@ -25,17 +25,17 @@ Read Chapter 16 of 从斗罗大陆开始的人生赢家Novel by 千影残光. Ep
 
 ---
 
-### Chapter List - Blue Silver Translations - WordPress.com
-If you haven't read “World of Cultivation” I would recommend it as well. The translator releases 1 chapter every day. There are a total of 950ish chapters and ...
-
-[Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
-
----
-
 ### Soul Land IV (Douluo Dalu) : Ultimate Fighting
 Ten thousand years later, ice has melted. The Soul Federation Scientific Exploration team found an egg with a golden and silver pattern on it in the far north ...
 
 [Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+
+---
+
+### Douluo Dalu
+Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
+
+[Read more](https://www.novelupdates.com/series/douluo-dalu/)
 
 ---
 
