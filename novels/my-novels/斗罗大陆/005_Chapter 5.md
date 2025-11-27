@@ -11,31 +11,31 @@ Read Douluo Dalu V Rebirth of Tang San all chapters, the latest available. READ 
 
 ---
 
-### Soul Land V - Chapter 5
-Soul Land V. Chapter 5. Soul Land V Manhua A generation of god king was reborn in the magical world of Falan. He was surprised to find that everything here ...
-
-[Read more](https://manhuaus.com/manga/soul-land-5-rebirth-of-tang-san/chapter-5/)
-
----
-
-### Soul Land 5 - Read Free Manga Online
-... 5 Chongsheng Tangsan, 斗罗大陆 5 重生唐三, Tang Jia San Shao, Yú Yuè,, Dr ... Chapter 5: Experiment. Anitation Arts · Dreqion. 0. 104+3.1K.
-
-[Read more](https://bato.si/title/99675-soul-land-5)
-
----
-
-### Soul Land V - Chapter 5
-Soul Land V - manhuaplus.com - A generation of god king was reborn in the magical world of Falan. He was surprised to find that everything here is so ...
-
-[Read more](https://manhuaplus.com/manga/soul-land-v/chapter-5/)
-
----
-
 ### Soul Land : Douluo Dalu ,Chapter 5
 Tang Sect, the most famous martial arts sect of all. By stealing its most secret teachings to fulfill his dreams, Tang San committed an unforgivable crime.
 
 [Read more](https://soullandmanga.com/manga/soul-land-douluo-dalu-chapter-5/)
+
+---
+
+### 《斗罗大陆V重生唐三》小说在线阅读
+一代神王唐三，带着一点神识在宇宙中遨游，寻找妻子转世重生的世界。在神识的牵引下，他来到了一个叫做妖精大陆的地方，而他却发现，这是一个人类为刍狗的 ...
+
+[Read more](https://www.qidian.com/book/1027996625/)
+
+---
+
+### Read Douluo Dalu 5 Rebirth of Tang San RAW English ...
+Douluo Dalu 5 Rebirth of Tang San; 斗罗大陆5重生唐三. Status, Completed. Date Added, February 28, 2022. Author. 唐家三少 · Tang Jia San Shao.
+
+[Read more](https://wtr-lab.com/en/novel/100/douluo-dalu-5-rebirth-of-tang-san)
+
+---
+
+### Tang San, the fifth rebirth of Douluo Continent
+斗罗大陆五重生唐三. Author: 开郎帝皇. Read Chapter 1 Add to Library. 197 ... Chapter 5 The ability to transform 656 days ago · 6 Chapter 6 First Battle 656 ...
+
+[Read more](https://www.fanmtl.com/novel/ke390022.html)
 
 ---
 
