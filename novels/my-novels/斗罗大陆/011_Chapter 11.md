@@ -19,7 +19,7 @@ Chapter 11: Na'er. Bam! Wu Zhagkong slammed the communicator down, his eyes flas
 ---
 
 ### Chapter List - Blue Silver Translations - WordPress.com
-There are a total of 950ish chapters and as of 11/28/16 442 have been released. I absolutely love the characters. I'm going to have to try out these others you' ...
+i just read up to manga chapter 11 where they are entering the academy. Can any one tell me which chapter is that in the novel? LikeLike. Reply. Adam's avatar ...
 
 [Read more](https://bluesilvertranslations.wordpress.com/chapter-list/)
 
