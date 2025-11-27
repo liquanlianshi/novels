@@ -26,16 +26,16 @@ If you haven't read “World of Cultivation” I would recommend it as well. The
 ---
 
 ### Soul Land II Chapter 268 ------------------------------ Author(s) : ...
-നമ്മുക്ക് pപലർക്കും അധികം aഅറിയാത്ത 2 സീരീസ് പരിചയപെടുത്താമെന്നു വിചാരിക്കുന്നു . 1) Soul land 2) Battle through the heaven വളരെ addictive ആയേക്കാവുന്ന cultivation, martial arts, ...
+THE LAND OF WARRIORS (EngSub 2024) ☘️ COMPLETED ☘️ EPISODE 1-38POSTED! Native Title: 斗罗大陆之燃魂战 Also Known As: Douluo Continent Season 2 ...
 
 [Read more](https://www.facebook.com/LegendarySwordman63/posts/soul-land-ii-chapter-268-authors-tang-jia-san-shao-hei-zhi-shistatus-ongoinggenr/2301868533566917/)
 
 ---
 
-### Soul Land IV (Douluo Dalu) : Ultimate Fighting
-Chapter 1765: Dragon God Lan Xuanyu! Chapter 1764: The Crimson God King Is Injured · Chapter 1763: Human Cannon, Peerless!
+### 國立中山大學第165 次教務會議會議紀錄
+時間：109 年10 月16 日（星期五）中午12 時30 分. 地點：行政大樓5007 會議室. 主席：李教務長志鵬. 紀錄：陳湘芸. 出席：李教務長志鵬、楊學生事務長靜利(于副學務長欽平 ...
 
-[Read more](https://novellive.com/book/soul-land-iv-douluo-dalu-ultimate-fighting)
+[Read more](https://oaa.nsysu.edu.tw/static/file/3/1003/attach/87/pta_141161_2927397_39713.pdf)
 
 ---
 
