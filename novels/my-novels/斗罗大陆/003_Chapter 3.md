@@ -32,10 +32,10 @@ Tang Sect, the most famous martial arts sect of all. By stealing its most secret
 
 ---
 
-### 斗罗大陆3 龙王传说漫画版1（新版） - 唐家三少
-普通家庭出身的唐舞麟，立志要成为一名强大的魂师，可当其武魂觉醒时，苏醒的却是废武魂——蓝银草！ 为了变得更强，唐舞麟不得不付出比常人更多的努力，踏上了充满挑战的人生 ...
+### Manga Soul Land III - The Legend of the Dragon King Read
+Soul Land III - The Legend of the Dragon King is a manga/manhwa/manhua written by Tang Jia San Shao, and is updated fast and free on www.mgeko.cc.
 
-[Read more](https://weread.qq.com/web/reader/7d132040811e345ceg014a94)
+[Read more](https://www.mgeko.cc/manga/soul-land-iii-the-legend-of-the-dragon-kings/)
 
 ---
 
